@@ -1,1 +1,0 @@
-# Pathuri-Mayuri-
